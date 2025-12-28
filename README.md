@@ -16,4 +16,4 @@
 
 ## Social:
 
-[Linkedin](https://linkedin.com/in/lsvs/)<br>[Read.cv](https://read.cv/lsvs)<br>[Medium](http://medium.com/@lisovskiy)<br>[Behance](https://be.net/lsvs)<br>[Dribbble](http://dribbble.com/lsvs)<br>[Instagram](http://instagram.com/lisovskiy.work)<br>[Facebook](http://facebook.com/lsvsj)<br>[Vimeo](http://vimeo.com/af)
+[Linkedin](https://linkedin.com/in/lsvs/)<br>[Medium](http://medium.com/@lisovskiy)<br>[Behance](https://be.net/lsvs)<br>[Dribbble](http://dribbble.com/lsvs)<br>[Instagram](http://instagram.com/lisovskiy.work)<br>[Facebook](http://facebook.com/lsvsj)<br>[Vimeo](http://vimeo.com/af)
